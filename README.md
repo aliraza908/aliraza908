@@ -1,4 +1,4 @@
-# Muhammad Ali Raza Tareen
+# Ali Raza Tareen
 
 **AI Engineer — agentic systems, retrieval, and applied ML**
 Pakistan (UTC+5) · working remotely · [Email](mailto:tareenraza301@gmail.com) · [LinkedIn](https://linkedin.com/in/ali-raza-tareen)
